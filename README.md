@@ -1,0 +1,1 @@
+# Curso-de-Termodin-mica-Computacional-em-Python---Wendeq---Dia-2
